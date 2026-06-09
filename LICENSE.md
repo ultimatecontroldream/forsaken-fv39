@@ -1,4 +1,4 @@
-#  
+#  automatic Scripts for forsaken offers the most advanced forsaken Script, with no cooldown and aimbot. Perfect for dominating any match.
 
 
 
